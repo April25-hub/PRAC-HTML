@@ -12,3 +12,6 @@ Arzaba Diaz April 1173 3W
 ![image](https://github.com/user-attachments/assets/b125f3ae-9bed-4677-bb88-ecfa9e5740cc)
 ![image](https://github.com/user-attachments/assets/899a4aef-32d2-431b-b3ab-c2a1e4c9493a)
 # prac-5
+![image](https://github.com/user-attachments/assets/0cdb1e77-b78e-4b66-9ac0-eb080dd24f09)
+![image](https://github.com/user-attachments/assets/a6ac9021-dddd-42a5-b8cc-1952855051ed)
+# PRAC-6
